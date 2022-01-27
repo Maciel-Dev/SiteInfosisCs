@@ -9,4 +9,4 @@
     1 Colher de sopa de glicose
     Meia xícara (chá) de farinha de trigo
 # Mode de fazer
-
+    1 Em uma panela, coloque o Leite Moça o NESTLÉ Creme de Leite, o pistache triturado, a farinha de trigo, a pasta de pistache e a glucose de milho e misture bem.
