@@ -8,6 +8,12 @@
     1 colher (sopa) de pasta de pistache
     1 Colher de sopa de glicose
     Meia xícara (chá) de farinha de trigo
-# Mode de fazer
-6 - Agora é só comer
+
+# Modo de fazer
+    1 Em uma panela, coloque o Leite Moça o NESTLÉ Creme de Leite, o pistache triturado, a farinha de trigo, a pasta de pistache e a glucose de milho e misture bem.
+    2 - Leve ao fogo médio, mexendo sempre, por cerca de 8 minutos, ou até desgrudar do fundo da panela.
+    3 - Coloque em um prato untado com manteiga e deixe descansar por cerca de 8 horas.
+    4.Com as mãos untadas, enrole em forma de brigadeiros, passe no pistache triturado e sirva.
+    6 - Agora é só comer
+
 
