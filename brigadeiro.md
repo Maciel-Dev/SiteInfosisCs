@@ -1,6 +1,7 @@
 # Brigadeiro de pistache
 
 # Ingredientes
+    1 Leite Moça lata
     meia caixinha de NESTLÉ® Creme de Leite. (Com Lactose)
     3 colheres (sopa) de pistache triturado
     meia xícara (chá) de pistache triturado para finalizar
