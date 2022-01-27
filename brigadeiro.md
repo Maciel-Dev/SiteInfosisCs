@@ -9,4 +9,5 @@
     1 Colher de sopa de glicose
     Meia xícara (chá) de farinha de trigo
 # Mode de fazer
+    4.Com as mãos untadas, enrole em forma de brigadeiros, passe no pistache triturado e sirva.
 
