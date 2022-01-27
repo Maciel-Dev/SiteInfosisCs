@@ -10,4 +10,5 @@
     Meia xícara (chá) de farinha de trigo
 # Modo de fazer
     4.Com as mãos untadas, enrole em forma de brigadeiros, passe no pistache triturado e sirva.
+    2 - Leve ao fogo médio, mexendo sempre, por cerca de 8 minutos, ou até desgrudar do fundo da panela.
 
